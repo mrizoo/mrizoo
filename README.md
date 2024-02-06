@@ -1,4 +1,4 @@
-[![MasterHead](https://img.freepik.com/premium-vector/vector-flat-illustration-software-developer-cyber-program-security_776789-211.jpg)](https://rishavchanda.io)
+[![MasterHead](https://img.freepik.com/free-photo/3d-portrait-people_23-2150793856.jpg)](https://rishavchanda.io)
 
 
 <h1 align="center">Hi 👋, I'm Mukhammadrizo</h1>
