@@ -1,4 +1,4 @@
-[![MasterHead](https://img.freepik.com/free-photo/3d-portrait-people_23-2150793856.jpg)](https://rishavchanda.io)
+[![MasterHead](https://cdn.dribbble.com/users/148731/screenshots/6662134/nowhiring-2019-dribbble.gif)](https://rishavchanda.io)
 
 
 <h1 align="center">Hi 👋, I'm Mukhammadrizo</h1>
