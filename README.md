@@ -1,4 +1,4 @@
-[![MasterHead](https://cdn.dribbble.com/users/148731/screenshots/6662134/nowhiring-2019-dribbble.gif)](https://rishavchanda.io)
+[![MasterHead](https://img.freepik.com/premium-vector/vector-flat-illustration-software-developer-cyber-program-security_776789-211.jpg)](https://rishavchanda.io)
 
 
 <h1 align="center">Hi 👋, I'm Mukhammadrizo</h1>
